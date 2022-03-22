@@ -14,7 +14,7 @@
 > I am glad to welcome you on my page 
  I dream of exploring the interesting front-end area.
 I study English 🇬🇧.
-I am cheerful and always try to stay positive in any difficult life situations 😊 
+I am cheerful and always try to stay positive in any difficult life situations. I love coffee, dogs,cats and people. 
 <br/>
 
 ## Skills
