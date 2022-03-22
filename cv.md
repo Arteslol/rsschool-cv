@@ -25,6 +25,7 @@ I am cheerful and always try to stay positive in any difficult life situations ð
  
 
 ## Education
+Belarus State Economic University
 
 <br/>
 
